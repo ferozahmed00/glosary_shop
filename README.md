@@ -1,0 +1,1 @@
+# glosary_shop
